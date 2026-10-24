@@ -2,7 +2,8 @@
 <p align="center">
 
 <p align="center"> 
-  <img src= "https://github.com/user-attachments/assets/c675b87d-f2ff-4e6e-9539-15e26e9b7116?width=10&height=10">
+  <img src= "<img width="465" height="334" alt="download" src="https://github.com/user-attachments/assets/b5e7e94c-c027-461b-9693-e1aa65aac3e0" />
+?width=10&height=10">
 
 
 
