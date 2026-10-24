@@ -2,7 +2,8 @@
 <p align="center">
 
 <p align="center"> 
-  <img src= "<img width="465" height="334" alt="download" src="https://github.com/user-attachments/assets/b5e7e94c-c027-461b-9693-e1aa65aac3e0>"
+<img width="465" height="334" alt="download" src="https://github.com/user-attachments/assets/19c0b9b3-7261-4994-b495-4c87480b88d1" />
+
 
 
 
