@@ -8,9 +8,9 @@
 
 
 <h6 align="center">
-' mend my heart that is broken ,
+' Why is it that the beautiful things ..  ,
   <h6 align="center" >
-    praise me, speak to me soft-spoken. ' - youwerestuckinseptember
+    .. are more intertwined in death more that life?
     <h6 align="center">
 
    [prns page](https://en.pronouns.page/@distrustfl)  ♱  [rentry](https://rentry.co/keepsecret) 
