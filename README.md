@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=boysquirt&label=comrades'.%20&color=1c1b1a&style=flat" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=boysquirt&label=dreamers'.%20&color=1c1b1a&style=flat" </p>
 <p align="center">
 
 <p align="center"> 
@@ -8,9 +8,9 @@
 
 
 <h6 align="center">
-' you'll get my attention again somehow ,
+' mend my heart that is broken ,
   <h6 align="center" >
-    its no problem. '
+    praise me, speak to me soft-spoken. ' - youwerestuckinseptember
     <h6 align="center">
 
    [prns page](https://en.pronouns.page/@distrustfl)  ♱  [rentry](https://rentry.co/keepsecret) 
