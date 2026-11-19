@@ -10,7 +10,7 @@
 <h6 align="center">
 ' Why is it that the beautiful things ..  ,
   <h6 align="center" >
-    .. are more intertwined in death more that life?
+    .. are more intertwined in death more than life?
     <h6 align="center">
 
    [prns page](https://en.pronouns.page/@keepsecrets)  ♱  [sp](https://theghoul.straw.page) 
