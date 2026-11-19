@@ -13,7 +13,7 @@
     .. are more intertwined in death more that life?
     <h6 align="center">
 
-   [prns page](https://en.pronouns.page/@keepsecrets)  ♱  [sp](https://houndered.straw.page) 
+   [prns page](https://en.pronouns.page/@keepsecrets)  ♱  [sp](https://theghoul.straw.page) 
 
 
 
