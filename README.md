@@ -14,7 +14,11 @@
     <h6 align="center">
 
    [prns page](https://en.pronouns.page/@keepsecrets)  ♱  [sp](https://theghoul.straw.page) 
-
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=hpyymyioopnmotk09dmpgpxul&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=hpyymyioopnmotk09dmpgpxul&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=c01c28&bar_color_cover=false">
+  </a>
+</p>
    <p align="center"> 
    <ins>please bmf</ins> i am very lonely .. ღ c+h <ins>always</ins>
 
